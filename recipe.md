@@ -15,4 +15,4 @@
 4. Gradually add the milk and vegetable oil to the mixture, continuing to stir.
 5. Pour the batter into a greased and floured 9x13-inch baking pan.
 6. Line the bottom of the baking pan with parchment paper for easy cake removal.
-
+7. Share the cake with your friends!
